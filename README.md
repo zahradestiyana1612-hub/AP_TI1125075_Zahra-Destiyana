@@ -1,4 +1,4 @@
-# AP_TI1125075_Zahra-Destiyana.
+# AP_TI1125075_Zahra-Destiyana
 
 Nama  : Zahra Destiyana
 
